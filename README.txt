@@ -1,8 +1,8 @@
-�t���X�N�̃P�[�X�ɂ҂�������܂�T�C�Y�̃��j�o�[�T����B
+フリスクのケースにぴったり収まるサイズのユニバーサル基板。
 
-���݂́A���Ђ̃m�x���e�B�Ƃ��Ă̂ݔz�z���Ă��܂��B
+現在は、当社のノベルティとしてのみ配布しています。
 http://trac.switch-science.com/wiki/frisk-board
 
-�l�C�������悤�Ȃ�A���i�����l���܂��B
+人気が高いようなら、商品化を考えます。
 
-CC BY-SA 2.1�Ō��J���܂��B
+CC BY-SA 2.1で公開します。
